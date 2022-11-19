@@ -1,0 +1,1 @@
+lu sok asik bangsat
